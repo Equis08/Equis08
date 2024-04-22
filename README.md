@@ -2,7 +2,7 @@
 - 👀 I’m interested in freedom and crypto
 - 🌱 I’m currently learning social evolution
 - 💞️ I’m looking to collaborate on community development
-- 📫 How to reach me email equis08@proton.me
+- 📫 How to reach me email    equis08@proton.me
 - 😄 Pronouns: Equis
 - ⚡ Fun fact: Music
 
